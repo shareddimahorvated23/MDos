@@ -1,1 +1,1 @@
-https://sites.google.com/view/mdos-powerpoint-edition/downloads?authuser=0
+https://sites.google.com/view/mdos-powerpoint-edition/downloads
